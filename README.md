@@ -1,10 +1,6 @@
 👋 Hi, I’m @Bambusgott
 
-👀 I’m interested in a LOT! :-)
-
-🌱 I’m currently learning to develop etherium smart contracts. 
-
-💞️ I’m looking to collaborate on blockchain projects. 
+🌱 I’m currently learning to develop etherium smart contracts. 💞️ I’m looking to collaborate on blockchain projects. 
 
 📫 How to reach me:  
 https://www.instagram.com/Bambusgott/
