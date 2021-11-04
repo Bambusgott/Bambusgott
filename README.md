@@ -1,9 +1,10 @@
 👋 Hi, I’m @Bambusgott
 
-🌱 I’m currently learning to develop etherium smart contracts. 💞️ I’m looking to collaborate on blockchain projects. 
+🌱  💞️ 
 
 📫 How to reach me:  
-https://www.instagram.com/Bambusgott/
+https://www.instagram.com/Bambusgott/ for fpv stuff
+https://twitter.com/bambusgott for crypto stuff
 
 
 
