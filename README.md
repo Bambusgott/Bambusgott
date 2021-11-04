@@ -3,7 +3,7 @@
 🌱  💞️ 
 
 📫 How to reach me:  
-https://www.instagram.com/Bambusgott/ for fpv stuff
+https://www.instagram.com/Bambusgott/ for fpv stuff  
 https://twitter.com/bambusgott for crypto stuff
 
 
